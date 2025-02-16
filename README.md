@@ -1,3 +1,5 @@
+> Ok I'd be real, cannot use my Beyond. When moment comes I'll drop some dope shit.
+
 <div align='center'>
 
 <img src=main.png raw=true alt="logo" width=256 height=256 />
